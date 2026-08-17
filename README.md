@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SboneloZwane
 - 👀 I’m interested in learning more about Tech .
-- 🌱 I’m currently learning Computer Science 
+- 🌱 Computer Science Graduate
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...sinakho11@gmail.com/0732063901
 - 😄 Pronouns: ...
